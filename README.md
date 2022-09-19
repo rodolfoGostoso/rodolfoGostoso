@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @rodolfoGostoso
-- 👀 I’m interested in novinhas 
-- 🌱 I’m currently learning bastante com o fessor
-- 💞️ I’m looking to collaborate on acabar com as drogas 
-- 📫 How to reach me segue no insta ta na b
+- 👋 oi eu sou rodolfoomaislindo
+- 👀 eu estou entereçado em novinhas 
+- 🌱 eu estou aprendendo com o fessor 
+- 💞️ eu procuro colaborar com o fim das drogas 
+- 📫 como chegar ate mim e so seguir no insta 
